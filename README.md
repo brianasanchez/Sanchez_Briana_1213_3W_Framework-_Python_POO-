@@ -15,9 +15,9 @@ Prueba #2
 
 Practica #3
 
-![image](https://github.com/user-attachments/assets/6480e75b-ad25-4ae0-bf1d-2e61e819a1c2)
+![image](https://github.com/user-attachments/assets/9e146799-8c98-4444-9f0a-4ff75821e2b7)
 
-![image](https://github.com/user-attachments/assets/c6f91f34-15da-40a5-83e5-fc8ba0dbd696)
+![image](https://github.com/user-attachments/assets/578078f6-a744-46c1-a8be-d53cfb9b2465)
 
 ![image](https://github.com/user-attachments/assets/cf1c5a70-5091-4526-af97-d1fffcc032ab)
 
